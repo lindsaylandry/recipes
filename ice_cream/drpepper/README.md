@@ -2,10 +2,10 @@
 
 ## Ingredients
 
-* ½ cups heavy cream
+* 1/2 cups heavy cream
 * 1 cup whole milk
-* ½ cup Dr Pepper syrup drink mix (I use the Soda Stream brand, Dr Pete)
-* ¼ teaspoon kosher salt
+* 1/3 cup Dr Pepper syrup drink mix (I use the Soda Stream brand, Dr Pete)
+* 1/4 teaspoon kosher salt
 * 1/4 cup cherries
 
 ## Instructions
