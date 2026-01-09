@@ -1,4 +1,4 @@
-# Chicken Adobo
+# Thai Green Curry
 
 ## Ingredients
 
