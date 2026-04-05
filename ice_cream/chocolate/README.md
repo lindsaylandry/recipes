@@ -20,3 +20,13 @@ for 2 hours or overnight.
 1. Churn in an ice cream maker for 20 to 30 minutes. 
 1. For firmer ice cream, transfer to airtight container and freeze for 2 to 4 hours before serving.
 1. Store in an airtight container in the freezer for up to a month.
+
+## Variations
+
+### Mexican Hot Chocolate
+* Add 1/2 tsp cinnamon
+
+### Chocolate Peanut Butter
+* Add 1/2 cup peanut butter
+* Add to mixture after removing heat
+* Save chcocolate chips for adding chunks while churning
